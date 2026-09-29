@@ -18,7 +18,7 @@
 - 💼 **Freelancer** - Available for projects
 - 🌍 From **Sri Lanka** 🇱🇰
 - 🔥 Always learning new things!
-- 📫 Reach me at: **your@email.com**
+- 📫 Reach me at: **madumadawa@email.com**
 
 <br clear="right"/>
 
